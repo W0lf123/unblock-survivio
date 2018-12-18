@@ -6,7 +6,7 @@ The solution? Make something that can bypass it.
 
 So I did.
 
-### [Click Here to Access Surviv.io](https://randomblock1.github.io/unblock-survivio/survivio.html "Surviv.io Unblocked!")
+### [Click Here to Access DISCORD](https://randomblock1.github.io/unblock-survivio/survivio.html "Surviv.io Unblocked!")
 ### [Click Here to Access Shell Shockers](https://randomblock1.github.io/unblock-survivio/shellshockers.html "Shell Shockers Unblocked!")
 ### [Click Here to Access Bonk.io](https://randomblock1.github.io/unblock-survivio/bonk.html "Bonk.io Unblocked!")
 Share this link to help others have fun! [bit.ly/surviv-io](http://bit.ly/surviv-io)
